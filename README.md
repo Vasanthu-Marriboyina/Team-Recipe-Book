@@ -20,6 +20,6 @@ Ingredients
 5. Add tomatoes,chilli and salt.
 6. Cook until soft.
 7. Mix with cooked rice.
-8. Serve hot.
+8. Serve Hot.
 
 
